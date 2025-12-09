@@ -1,0 +1,1 @@
+[Можно ли считать киберпространство новым измерением национального суверенитета и какие формы контроля государства в цифровой среде этому соответствует?](https://www.canva.com/design/DAG61Ox1qBQ/LBCSNse4Cw0v-k3vWj_UXQ/edit?utm_content=DAG61Ox1qBQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
